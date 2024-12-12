@@ -4,5 +4,7 @@ I am a Data Analyst, Accounting and Finance Graduate and soon to be a chartered 
 🤔 I’m open to job opportunites
 💬 Ask me about subject relating data analytics
 👨‍💻 All of my projects are available at Portfolio
-📫 How to reach me: Email
+📫 How to reach me: Email:
+        @fortyd123@gmail.com Gmail
+        @kinyera Leonard Odokopira Linkedln
 ⚡ Fun fact: I Love sports, i love to keep fit and maintain a healthy lifestyle.
